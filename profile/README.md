@@ -1,4 +1,4 @@
-<a href="https://github.com/LMNYX"><img src="https://uwu.so/mishashto/mid52GbNMd"></a>
+<a href="https://github.com/LMNYX"><img src="https://uwu.so/mishashto/mi26UUAciP"></a>
 
 #### Legal
 
